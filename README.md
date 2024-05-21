@@ -1,0 +1,1 @@
+# temel_goruntu_isleme_teknikleri
